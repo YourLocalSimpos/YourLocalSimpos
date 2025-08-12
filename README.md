@@ -14,7 +14,10 @@
 <p align="center">
 ── ⭑𝐀𝐁𝐎𝐔𝐓 𝐌𝐄⭑ ──
 <p
-  
+  <p align="center">
+  ・・・・・ ・・・・・
+  <p
+    
 <p align="center">
 → 𝐟𝐫𝐢𝐞𝐧𝐝𝐬 𝐜𝐚𝐥𝐥 𝐦𝐞 𝐋𝐨𝐜𝐚𝐥!!  ←
 <p
