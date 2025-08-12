@@ -8,7 +8,7 @@
 ⌞ ​​🇮​ ​🇦​​🇲​ ​🇳​​🇪​​🇮​​🇹​​🇭​​🇪​​🇷​ ​🇮​​🇳​​🇳​​🇴​​🇨​​🇪​​🇳​​🇹​ ​🇳​​🇴​​🇷​ ​🇦​ ​🇨​​🇭​​🇮​​🇱​​🇩​. ⌝
 <p
 <p align="center">
-<img width="536" height="536" alt="image" src="https://github.com/user-attachments/assets/a9ad2fa7-728c-484f-bc6d-ea9df0d1a2f0" />
+<img width="436" height="436" alt="image" src="https://github.com/user-attachments/assets/a9ad2fa7-728c-484f-bc6d-ea9df0d1a2f0" />
 
 <p 
 
