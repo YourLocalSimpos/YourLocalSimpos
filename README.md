@@ -61,7 +61,7 @@
   ⋮ I play things like Dead By Daylight, Overwatch 2, ARK: Survival Evolved, Century: Age of Ashes, The Isle, Path of Titans, Roblox, Sky Children of The Light and also a bit of Red Dead Online. Also a previous Paladins player before Evil Mojo decided to kill the game.
 <p
 <p align="center">
-⋮ Played things like Witcher 3: The Wild Hunt, Slay The Princess and Jurrasic World Evolution. (theres probably more but I can't remember them from the top of my head)
+⋮ Played things like Witcher 3: The Wild Hunt, Slay The Princess and Jurassic World Evolution. (theres probably more but I can't remember them from the top of my head)
 <p
   <p align="center">
   ☁︎ Currently in 4 Dungeons and Dragons campaigns! One of which I DM for ^^ ☁︎
