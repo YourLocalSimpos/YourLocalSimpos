@@ -7,14 +7,25 @@
 𓎢𓎠𓎟𓎠𓎡𓎢𓎠𓎟𓎠𓎡
   <p
 <p align="center">
-⌞ ​​🇮​ ​🇦​​🇲​ ​🇳​​🇪​​🇮​​🇹​​🇭​​🇪​​🇷​ ​🇮​​🇳​​🇳​​🇴​​🇨​​🇪​​🇳​​🇹​ ​🇳​​🇴​​🇷​ ​🇦​ ​🇨​​🇭​​🇮​​🇱​​🇩​. ⌝
+⌞ " ​​🇮​ ​🇦​​🇲​ ​🇳​​🇪​​🇮​​🇹​​🇭​​🇪​​🇷​ ​🇮​​🇳​​🇳​​🇴​​🇨​​🇪​​🇳​​🇹​ ​🇳​​🇴​​🇷​ ​🇦​ ​🇨​​🇭​​🇮​​🇱​​🇩​. " ⌝
 <p
-  
+
 <p align="center">
 <img width="480" height="480" alt="54cb650c474d32599d0bfdec48066f7a-removebg-preview" src="https://github.com/user-attachments/assets/e2f43663-a67e-49af-94d7-3f8b746d3b83" />
 <p 
 
+<p align="center">
+𓎢𓎠𓎟𓎠𓎡𓎢𓎠𓎟𓎠𓎡𓎢𓎠𓎟𓎠𓎡𓎢𓎠𓎟𓎠𓎡𓎢𓎠𓎟𓎠𓎡𓎢𓎠𓎟𓎠𓎡
+<p
+  
+<p align="center">
+..𝚊𝚕𝚕 𝚖𝚢 𝚝𝚛𝚘𝚞𝚋𝚕𝚎𝚜 𝚘𝚗 𝚊 𝚋𝚞𝚛𝚗𝚒𝚗𝚐 𝚙𝚒𝚕𝚎, 𝚊𝚕𝚕 𝚕𝚒𝚝 𝚞𝚙 𝚊𝚗𝚍 𝙸 𝚜𝚝𝚊𝚛𝚝 𝚝𝚘 𝚜𝚖𝚒𝚕𝚎
+<p 
 
+  <p align="center">
+𓎢𓎠𓎟𓎠𓎡𓎢𓎠𓎟𓎠𓎡𓎢𓎠𓎟𓎠𓎡𓎢𓎠𓎟𓎠𓎡
+<p
+  
 <p align="center">
 ── ⭑𝐀𝐁𝐎𝐔𝐓 𝐌𝐄⭑ ──
 <p
@@ -61,46 +72,102 @@
    ・・・・・ ・・・・・
    <p
      
- <p align="center">
-  𖹭 𓎢𓎠𓎟𓎠𓎡 𖹭
-<p
 <p align="center">
 <img width="577" height="433" alt="image-removebg-preview (2)" src="https://github.com/user-attachments/assets/17639136-16ce-4e08-a71b-ff5987b7d73b" />
 <p
-<p align="center">
-── ⭑𝐈𝐍𝐓𝐄𝐑𝐄𝐒𝐓𝐒⭑ ──
-<p
-<p align="center">
- ☁︎ big fan of Naruto and TSHD atm ☁︎
-<p
-<p align="center">
-  ⋮ I play things like Dead By Daylight, Overwatch 2, ARK: Survival Evolved, Century: Age of Ashes, The Isle, Path of Titans, Roblox, Sky Children of The Light and also a bit of Red Dead Online. Also a previous Paladins player before Evil Mojo decided to kill the game.
-<p
-<p align="center">
-⋮ Played things like Witcher 3: The Wild Hunt, Slay The Princess and Jurassic World Evolution. (theres probably more but I can't remember them from the top of my head)
-<p
-  <p align="center">
-  ☁︎ Currently in 4 Dungeons and Dragons campaigns! One of which I DM for ^^ ☁︎
-  <p
-    <p align="center">
-  ⋮ I've read Warrior Cats (30 books at the moment this was made) and Wings of Fire (first 5 books at the moment this was made). Planning to read The Iliad and Odyssey.
-    <p
-    <p align="center">
-    ⋮ Owls, Snakes, Cats, Moths, Dinosaurs, and Dragons | OR | Godzilla, HTTYD, Game of Thrones, Squid Game, Stranger Things, FNAF, Bendy and The Ink Machine also make this list! Also roleplaying. I sometimes draw too, I guess.
-    <p
 
-  <p align="center">
-  ☁︎ can you tell Sasuke is my favorite character? ☁︎
- <p
+<p align="center">
+𓎢𓎠𓎟𓎠𓎡𓎢𓎠𓎟𓎠𓎡𓎢𓎠𓎟𓎠𓎡𓎢𓎠𓎟𓎠𓎡𓎢𓎠𓎟𓎠𓎡𓎢𓎠𓎟𓎠𓎡
+<p
+
+<p align="center">
+𝚒𝚏 𝙸 𝚌𝚊𝚝𝚌𝚑 𝚏𝚒𝚛𝚎 𝚝𝚑𝚎𝚗 𝙸 𝚌𝚑𝚊𝚗𝚐𝚎 𝚖𝚢 𝚊𝚒𝚖, 𝚝𝚑𝚛𝚘𝚠 𝚖𝚢 𝚝𝚛𝚘𝚞𝚋𝚕𝚎𝚜 𝚊𝚝 𝚝𝚑𝚎 𝚠𝚘𝚛𝚕𝚍 𝚊𝚐𝚊𝚒𝚗
+<p
+
 <p align="center">
 𓎢𓎠𓎟𓎠𓎡𓎢𓎠𓎟𓎠𓎡𓎢𓎠𓎟𓎠𓎡𓎢𓎠𓎟𓎠𓎡
 <p
   
 <p align="center">
-<img width="520" height="370" alt="d4b7e4043e7b29d6dd391e661b43f97d-removebg-preview" src="https://github.com/user-attachments/assets/61e52bb6-6d19-43f6-8948-cbc1a1c31114" />
+── ⭑𝐈𝐍𝐓𝐄𝐑𝐄𝐒𝐓𝐒⭑ ──
 <p
-  
 <p align="center">
+ ☁︎ 𝐛𝐢𝐠 𝐟𝐚𝐧 𝐨𝐟 𝐍𝐚𝐫𝐮𝐭𝐨 𝐚𝐧𝐝 𝐓𝐒𝐇𝐃 𝐚𝐭𝐦 ☁︎
+<p
+<p align="center">
+  ⋮ 𝐈 𝐩𝐥𝐚𝐲 𝐭𝐡𝐢𝐧𝐠𝐬 𝐥𝐢𝐤𝐞 𝐃𝐞𝐚𝐝 𝐁𝐲 𝐃𝐚𝐲𝐥𝐢𝐠𝐡𝐭, 𝐎𝐯𝐞𝐫𝐰𝐚𝐭𝐜𝐡 𝟐, 𝐀𝐑𝐊: 𝐒𝐮𝐫𝐯𝐢𝐯𝐚𝐥 𝐄𝐯𝐨𝐥𝐯𝐞𝐝, 𝐂𝐞𝐧𝐭𝐮𝐫𝐲: 𝐀𝐠𝐞 𝐨𝐟 𝐀𝐬𝐡𝐞𝐬, 𝐓𝐡𝐞 𝐈𝐬𝐥𝐞, 𝐏𝐚𝐭𝐡 𝐨𝐟 𝐓𝐢𝐭𝐚𝐧𝐬, 𝐑𝐨𝐛𝐥𝐨𝐱, 𝐒𝐤𝐲 𝐂𝐡𝐢𝐥𝐝𝐫𝐞𝐧 𝐨𝐟 𝐓𝐡𝐞 𝐋𝐢𝐠𝐡𝐭 𝐚𝐧𝐝 𝐚𝐥𝐬𝐨 𝐚 𝐛𝐢𝐭 𝐨𝐟 𝐑𝐞𝐝 𝐃𝐞𝐚𝐝 𝐎𝐧𝐥𝐢𝐧𝐞. 𝐀𝐥𝐬𝐨 𝐚 𝐩𝐫𝐞𝐯𝐢𝐨𝐮𝐬 𝐏𝐚𝐥𝐚𝐝𝐢𝐧𝐬 𝐩𝐥𝐚𝐲𝐞𝐫 𝐛𝐞𝐟𝐨𝐫𝐞 𝐄𝐯𝐢𝐥 𝐌𝐨𝐣𝐨 𝐝𝐞𝐜𝐢𝐝𝐞𝐝 𝐭𝐨 𝐤𝐢𝐥𝐥 𝐭𝐡𝐞 𝐠𝐚𝐦𝐞.
+<p
+<p align="center">
+⋮ 𝐏𝐥𝐚𝐲𝐞𝐝 𝐭𝐡𝐢𝐧𝐠𝐬 𝐥𝐢𝐤𝐞 𝐖𝐢𝐭𝐜𝐡𝐞𝐫 𝟑: 𝐓𝐡𝐞 𝐖𝐢𝐥𝐝 𝐇𝐮𝐧𝐭, 𝐒𝐥𝐚𝐲 𝐓𝐡𝐞 𝐏𝐫𝐢𝐧𝐜𝐞𝐬𝐬 𝐚𝐧𝐝 𝐉𝐮𝐫𝐚𝐬𝐬𝐢𝐜 𝐖𝐨𝐫𝐥𝐝 𝐄𝐯𝐨𝐥𝐮𝐭𝐢𝐨𝐧. (𝐭𝐡𝐞𝐫𝐞𝐬 𝐩𝐫𝐨𝐛𝐚𝐛𝐥𝐲 𝐦𝐨𝐫𝐞 𝐛𝐮𝐭 𝐈 𝐜𝐚𝐧'𝐭 𝐫𝐞𝐦𝐞𝐦𝐛𝐞𝐫 𝐭𝐡𝐞𝐦 𝐟𝐫𝐨𝐦 𝐭𝐡𝐞 𝐭𝐨𝐩 𝐨𝐟 𝐦𝐲 𝐡𝐞𝐚𝐝)
+<p
+  <p align="center">
+  ☁︎ 𝐂𝐮𝐫𝐫𝐞𝐧𝐭𝐥𝐲 𝐢𝐧 𝟒 𝐃𝐮𝐧𝐠𝐞𝐨𝐧𝐬 𝐚𝐧𝐝 𝐃𝐫𝐚𝐠𝐨𝐧𝐬 𝐜𝐚𝐦𝐩𝐚𝐢𝐠𝐧𝐬! 𝐎𝐧𝐞 𝐨𝐟 𝐰𝐡𝐢𝐜𝐡 𝐈 𝐃𝐌 𝐟𝐨𝐫 ^^ ☁︎
+  <p
+    <p align="center">
+  ⋮ 𝐈'𝐯𝐞 𝐫𝐞𝐚𝐝 𝐖𝐚𝐫𝐫𝐢𝐨𝐫 𝐂𝐚𝐭𝐬 (𝟑𝟎 𝐛𝐨𝐨𝐤𝐬 𝐚𝐭 𝐭𝐡𝐞 𝐦𝐨𝐦𝐞𝐧𝐭 𝐭𝐡𝐢𝐬 𝐰𝐚𝐬 𝐦𝐚𝐝𝐞) 𝐚𝐧𝐝 𝐖𝐢𝐧𝐠𝐬 𝐨𝐟 𝐅𝐢𝐫𝐞 (𝐟𝐢𝐫𝐬𝐭 𝟓 𝐛𝐨𝐨𝐤𝐬 𝐚𝐭 𝐭𝐡𝐞 𝐦𝐨𝐦𝐞𝐧𝐭 𝐭𝐡𝐢𝐬 𝐰𝐚𝐬 𝐦𝐚𝐝𝐞). 𝐏𝐥𝐚𝐧𝐧𝐢𝐧𝐠 𝐭𝐨 𝐫𝐞𝐚𝐝 𝐓𝐡𝐞 𝐈𝐥𝐢𝐚𝐝 𝐚𝐧𝐝 𝐎𝐝𝐲𝐬𝐬𝐞𝐲.
+    <p
+    <p align="center">
+    ⋮ 𝐎𝐰𝐥𝐬, 𝐒𝐧𝐚𝐤𝐞𝐬, 𝐂𝐚𝐭𝐬, 𝐌𝐨𝐭𝐡𝐬, 𝐃𝐢𝐧𝐨𝐬𝐚𝐮𝐫𝐬, 𝐚𝐧𝐝 𝐃𝐫𝐚𝐠𝐨𝐧𝐬 | 𝐎𝐑 | 𝐆𝐨𝐝𝐳𝐢𝐥𝐥𝐚, 𝐇𝐓𝐓𝐘𝐃, 𝐆𝐚𝐦𝐞 𝐨𝐟 𝐓𝐡𝐫𝐨𝐧𝐞𝐬, 𝐒𝐪𝐮𝐢𝐝 𝐆𝐚𝐦𝐞, 𝐒𝐭𝐫𝐚𝐧𝐠𝐞𝐫 𝐓𝐡𝐢𝐧𝐠𝐬, 𝐅𝐍𝐀𝐅, 𝐁𝐞𝐧𝐝𝐲 𝐚𝐧𝐝 𝐓𝐡𝐞 𝐈𝐧𝐤 𝐌𝐚𝐜𝐡𝐢𝐧𝐞 𝐚𝐥𝐬𝐨 𝐦𝐚𝐤𝐞 𝐭𝐡𝐢𝐬 𝐥𝐢𝐬𝐭! 𝐀𝐥𝐬𝐨 𝐫𝐨𝐥𝐞𝐩𝐥𝐚𝐲𝐢𝐧𝐠. 𝐈 𝐬𝐨𝐦𝐞𝐭𝐢𝐦𝐞𝐬 𝐝𝐫𝐚𝐰 𝐭𝐨𝐨, 𝐈 𝐠𝐮𝐞𝐬𝐬.
+    <p
+
+  <p align="center">
+  ☁︎ 𝐜𝐚𝐧 𝐲𝐨𝐮 𝐭𝐞𝐥𝐥 𝐒𝐚𝐬𝐮𝐤𝐞 𝐢𝐬 𝐦𝐲 𝐟𝐚𝐯𝐨𝐫𝐢𝐭𝐞 𝐜𝐡𝐚𝐫𝐚𝐜𝐭𝐞𝐫? ☁︎
+ <p
+
+  <p align="center">
+  ・・・・・ ・・・・・
+  <p
+
+<p align="center">
+<img width="509" height="490" alt="63e8a34449089703fcf6111d6485651f-removebg-preview" src="https://github.com/user-attachments/assets/07544407-638a-4a79-8707-9a4abd3760e9" />
+<p
+
+<p align="center">
+𓎢𓎠𓎟𓎠𓎡𓎢𓎠𓎟𓎠𓎡𓎢𓎠𓎟𓎠𓎡𓎢𓎠𓎟𓎠𓎡𓎢𓎠𓎟𓎠𓎡𓎢𓎠𓎟𓎠𓎡
+<p
+
+<p align="center">
+𝚒𝚝 𝚐𝚘𝚎𝚜, 𝚊𝚕𝚕 𝚖𝚢 𝚝𝚛𝚘𝚞𝚋𝚕𝚎𝚜 𝚘𝚗 𝚊 𝚋𝚞𝚛𝚗𝚒𝚗𝚐 𝚙𝚒𝚕𝚎, 𝚊𝚕𝚕 𝚕𝚒𝚝 𝚞𝚙 𝚊𝚗𝚍 𝙸 𝚜𝚝𝚊𝚛𝚝 𝚝𝚘 𝚜𝚖𝚒𝚕𝚎
+<p
+
+<p align="center">
+𓎢𓎠𓎟𓎠𓎡𓎢𓎠𓎟𓎠𓎡𓎢𓎠𓎟𓎠𓎡𓎢𓎠𓎟𓎠𓎡
+<p
+
+<p align="center">
+── ⭑𝐃𝐍𝐈⭑ ──
+<p
+<p align="center">
+→ 𝐛𝐚𝐬𝐢𝐜 𝐃𝐍𝐈'𝐬 ←
+<p
+<p align="center">
+→ 𝐩𝐞𝐨𝐩𝐥𝐞 𝐰𝐡𝐨 𝐬𝐭𝐚𝐫𝐭 𝐬𝐡𝐢𝐩 𝐰𝐚𝐫𝐬, 𝐈 𝐝𝐨𝐧'𝐭 𝐜𝐚𝐫𝐞 𝐰𝐡𝐚𝐭 𝐬𝐡𝐢𝐩 𝐲𝐨𝐮 𝐥𝐢𝐤𝐞 𝐣𝐮𝐬𝐭 𝐝𝐨𝐧'𝐭 𝐭𝐚𝐫𝐠𝐞𝐭 𝐨𝐭𝐡𝐞𝐫𝐬 ←
+<p
+<p align="center">
+→ 𝐚𝐧𝐧𝐨𝐲𝐢𝐧𝐠 𝐩𝐞𝐨𝐩𝐥𝐞.. 𝐢𝐟 𝐬𝐨𝐦𝐞𝐨𝐧𝐞 𝐚𝐬𝐤𝐬 𝐲𝐨𝐮 𝐭𝐨 𝐬𝐭𝐨𝐩, 𝐲𝐨𝐮 𝐬𝐭𝐨𝐩 ←
+<p 
+
+ <p align="center">
+  ・・・・・ ・・・・・
+  <p
+
+<p align="center">
+<img width="385" height="428" alt="b3a60a2602a86134b4266c745bff54b0-removebg-preview" src="https://github.com/user-attachments/assets/f99c7dd0-6458-4fdb-822c-db685d4f703f" />
+<p
+
+<p align="center">
+𓎢𓎠𓎟𓎠𓎡𓎢𓎠𓎟𓎠𓎡𓎢𓎠𓎟𓎠𓎡𓎢𓎠𓎟𓎠𓎡𓎢𓎠𓎟𓎠𓎡𓎢𓎠𓎟𓎠𓎡
+<p
+
+<p align="center">
+𝚒𝚏 𝙸, 𝚌𝚊𝚝𝚌𝚑 𝚏𝚒𝚛𝚎 𝚝𝚑𝚎𝚗 𝙸'𝚕𝚕 𝚝𝚊𝚔𝚎 𝚖𝚢 𝚝𝚞𝚛𝚗
+<p
+
+<p align="center">
+𓎢𓎠𓎟𓎠𓎡𓎢𓎠𓎟𓎠𓎡𓎢𓎠𓎟𓎠𓎡𓎢𓎠𓎟𓎠𓎡
+<p
+
+ <p align="center">
 ── ⭑𝐁𝐘𝐅⭑ ──
 <p
 
@@ -140,13 +207,23 @@
 <p align="center">
 → 𝐩𝐥𝐬 𝐛𝐞 𝐩𝐚𝐭𝐢𝐞𝐧𝐭 𝐈 𝐜𝐚𝐧 𝐛𝐞 𝐯𝐞𝐫𝐲 𝐬𝐭𝐮𝐩𝐢𝐝 ←
 <p
+
+ <p align="center">
+  ・・・・・ ・・・・・
+  <p
   
-  <p align="center">
-𓎢𓎠𓎟𓎠𓎡𓎢𓎠𓎟𓎠𓎡𓎢𓎠𓎟𓎠𓎡𓎢𓎠𓎟𓎠𓎡
-<p
 <p align="center">
 <img width="480" height="480" alt="f68d8128150244b43a1c81b2c7ae6f22-removebg-preview" src="https://github.com/user-attachments/assets/f0cb22c9-f66e-4159-869d-e5a2f86a721e" />
 <p
+
+<p align="center">
+𓎢𓎠𓎟𓎠𓎡𓎢𓎠𓎟𓎠𓎡𓎢𓎠𓎟𓎠𓎡𓎢𓎠𓎟𓎠𓎡𓎢𓎠𓎟𓎠𓎡𓎢𓎠𓎟𓎠𓎡
+<p
+  
+<p align="center">
+𝚝𝚘 𝚋𝚞𝚛𝚗 𝚊𝚗𝚍 𝚋𝚞𝚛𝚗 𝚊𝚗𝚍 𝚋𝚞𝚛𝚗..
+<p
+  
 <p align="center">
 𓎢𓎠𓎟𓎠𓎡𓎢𓎠𓎟𓎠𓎡𓎢𓎠𓎟𓎠𓎡𓎢𓎠𓎟𓎠𓎡
 <p
