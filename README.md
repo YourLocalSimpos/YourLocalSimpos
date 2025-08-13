@@ -73,7 +73,7 @@
    <p
      
 <p align="center">
-<img width="577" height="433" alt="image-removebg-preview (2)" src="https://github.com/user-attachments/assets/17639136-16ce-4e08-a71b-ff5987b7d73b" />
+<img width="594" height="420" alt="image-removebg-preview (5)" src="https://github.com/user-attachments/assets/4f1d54c3-d075-4e27-9e14-b01450fcf96b" />
 <p
 
 <p align="center">
